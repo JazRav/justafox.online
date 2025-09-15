@@ -1,1 +1,1 @@
-# asyrie.quest
+# [justafox.online](just a fox)
